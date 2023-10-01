@@ -41,4 +41,4 @@
 ## More
 i don't give services like this anymore
 <br>i hid a lot of words cause this content just too explicit</br>
-ask and more about this, message [me](https://instagram.com/ppahme).
+wanna talk about this? call [me](https://instagram.com/ppahme).
